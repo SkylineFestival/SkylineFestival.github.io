@@ -30,3 +30,7 @@ Bucker Fuskyote
 WhenSnakesSing
 LucarioTheFurry
 Aft3r
+LustfulLivy
+Sapphire Venus
+A_Jive
+ʕᴴᵃᵐʔ
