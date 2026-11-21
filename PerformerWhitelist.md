@@ -4,7 +4,7 @@ TheMisfitQueen
 Solonus
 loprov
 Kazukі
-Studio tredic
+Studio tredici
 tfmjonny
 PandaTron
 ColinWithVocals
